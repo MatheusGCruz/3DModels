@@ -1,0 +1,1 @@
+TTGO T-Beam T22_v1.1 20191212 Case (IPEX Version) by jangrewe on Thingiverse: https://www.thingiverse.com/thing:4619981

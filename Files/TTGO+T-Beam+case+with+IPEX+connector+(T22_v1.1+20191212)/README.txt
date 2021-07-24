@@ -1,0 +1,1 @@
+TTGO T-Beam case with IPEX connector (T22_v1.1 20191212) by construprint on Thingiverse: https://www.thingiverse.com/thing:4589651

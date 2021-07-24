@@ -1,0 +1,1 @@
+best 3D-printable bearing by Bribro12 on Thingiverse: https://www.thingiverse.com/thing:2349065
